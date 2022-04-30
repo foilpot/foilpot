@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @foilpot
+- 👀 I’m interested in youtube and making games!
+- 🌱 I’m currently learning voice acting and clickteam's engine!
+- 💞️ I’m looking to collaborate on making games or voice acting!
+- 📫 How to reach me is twitter!
